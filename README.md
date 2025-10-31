@@ -7,4 +7,7 @@ A line I wrote on my local computer
 hello
 mic testing one two three
 i like myself
+hello
+
 i am in the minframe nowm
+Hey I am all star getb your game on go play
